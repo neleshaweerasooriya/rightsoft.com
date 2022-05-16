@@ -1,1 +1,1 @@
-# www.rightsoft.com
+# www.pinirightsoft.com
